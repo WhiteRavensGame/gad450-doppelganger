@@ -1,0 +1,1 @@
+Three players try to escape the cursed room alive... however, there's one doppelganger who's goal is to make sure none of them make it out alive.
